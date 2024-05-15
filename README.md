@@ -1,1 +1,1 @@
-https://i.pinimg.com/564x/a2/ac/bd/a2acbd27351f562605cacedfa923ffce.jpg
+![image](https://github.com/tenmasu/tenmasu/assets/152469938/217b4b47-aa4b-49ee-9877-2c968e34e214)
