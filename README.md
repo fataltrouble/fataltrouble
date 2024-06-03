@@ -1,1 +1,1 @@
-https://i.pinimg.com/564x/15/de/e4/15dee4946c8bb776d3f86be348dff4fc.jpg
+![image](https://github.com/fataltrouble/tenmasu/assets/152469938/202d4d1a-8b1a-4e70-9409-838e2f1aea0a)
